@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with advanced birdeye sniper bot | auto-buy + blockchain-scanning. Featuring auto-buy and blockchain-scanning, it's the best choice for
 
 
 
